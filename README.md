@@ -10,6 +10,6 @@ Don't hesitate to leave your contact information.
 
 I can learn from you better.
 
-This is my mailbox 93518301@qq.com.
+This is my mailbox 2210321230@stu.xaut.edu.cn & 93518301@qq.com.
 
 ♥♥♥♥♥♥♥♥♥♥♥♥♥
